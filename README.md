@@ -2,12 +2,12 @@
 
 
 
-- 🔭 I’m currently persuing my B.Tech in Computer Science Engineering. 
-- 🌱 I’m currently learning everything 🤣
+- 🔭 I’m currently working as a Software Engineer at Wells Fargo. 
+- 🌱 I’m a Machine Learning enthusiast.
 - 💬 Ask me about anything 'cause im good at Googling.
 - 📫 How to reach me:Just ping me at sukritisingh23600@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love dancing and watching children getting hurt videos.
+- ⚡ Fun fact: I love dancing and watching cat videos.
 
 ### Connect With Me:
 
